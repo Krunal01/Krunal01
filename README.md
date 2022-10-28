@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **parmarkrunal09101@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1Ub2_zzOIRyy4gFlZjlpFW0xp8nWhgwyLkUJLpH1Ogdk/edit?usp=sharing](https://docs.google.com/document/d/1Ub2_zzOIRyy4gFlZjlpFW0xp8nWhgwyLkUJLpH1Ogdk/edit?usp=sharing)
+- 📄 Know about my experiences https://docs.google.com/document/d/1YoLjrn6Yhwx1OV47iX-Xz0CsUoQDrPsYZv5e1_HL8rY/edit?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
